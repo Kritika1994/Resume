@@ -1,2 +1,2 @@
-[1621863626248.pdf](https://github.com/Kritika1994/Resume/files/7155137/1621863626248.pdf)
-# Resume
+[Kritika_Agarwal_May2021.pdf](https://github.com/Kritika1994/Resume/files/7155192/Kritika_Agarwal_May2021.pdf)
+# Click Above to download Kritika's Resume. 
